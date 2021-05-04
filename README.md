@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chiilax
 - 👀 I’m interested in creating some projects in GitHub Future
-- 🌱 I’m currently learning more about IT and Developer
+- 🌱 I’m currently learning more about side of IT and Developer
 - 💞️ I’m looking to collaborate on not know yet
 - 📫 How to reach me in Discord - ►𝘾𝙝𝙞𝙞𝙡𝙖𝙭◄#5886
 
